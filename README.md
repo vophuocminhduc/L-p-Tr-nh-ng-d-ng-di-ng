@@ -1,1 +1,5 @@
-# L-p-Tr-nh-ng-d-ng-di-ng
+# Lap trinh ung dung di dong
+
+# nhom 1 - Nộp bài kiểm tra giữa kì
+# Võ Phước Minh Đức
+# 18T1021071
